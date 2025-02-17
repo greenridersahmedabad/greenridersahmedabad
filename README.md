@@ -1,8 +1,16 @@
+![GR GROUP](https://github.com/user-attachments/assets/4d0f54e0-d06e-49ab-83ac-642f1ae6bd80)
+
 ### 🌿 Green Riders 🚴‍♂️  
+Welcome to Green Riders – a community of cycling enthusiasts committed to adventure, endurance, and sustainability. We ride to explore, connect, and promote an active lifestyle while embracing the beauty of nature. 🌿🚵‍♂️
 **Pedal. Explore. Conserve.**  
 
+#### 🌱 Our Mission
+
+We are dedicated to fostering a love for cycling while advocating for a greener planet. We organize rides that celebrate nature, endurance, and camaraderie, ensuring every pedal stroke brings us closer to our goals of fitness and sustainability.
+
+
 #### 🚴 Who We Are  
-Green Riders is a passionate community of cyclists committed to adventure, endurance, and sustainability. From daily commutes to long-distance challenges, we ride to explore, connect, and promote a healthier, greener lifestyle.  
+We are passionate community of cyclists committed to adventure, endurance, and sustainability. From daily commutes to long-distance challenges, we ride to explore, connect, and promote a healthier, greener lifestyle.  
 
 ---
 
